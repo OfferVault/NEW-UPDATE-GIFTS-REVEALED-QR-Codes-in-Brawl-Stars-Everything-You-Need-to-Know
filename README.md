@@ -1,6 +1,5 @@
 # NEW-UPDATE-GIFTS-REVEALED-QR-Codes-in-Brawl-Stars-Everything-You-Need-to-Know
 
-# **NEW UPDATE 🎁 GIFTS REVEALED! QR Codes in Brawl Stars – Everything You Need to Know**
 
 ## **What Are QR Codes in Brawl Stars?**
 
